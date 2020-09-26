@@ -1,1 +1,0 @@
-# A-markdown-version-of-My-Resume
